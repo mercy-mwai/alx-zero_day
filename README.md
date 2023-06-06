@@ -1,1 +1,1 @@
-My second readme
+Mercy Njoki
